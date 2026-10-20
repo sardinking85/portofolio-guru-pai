@@ -1,1 +1,0 @@
-# portofolio-guru-pai
